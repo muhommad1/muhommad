@@ -1,2 +1,0 @@
-# muhommad
-brute snapchat
